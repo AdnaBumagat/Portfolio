@@ -1,2 +1,0 @@
-# Portfolio
-Bumagat, Adrian James
